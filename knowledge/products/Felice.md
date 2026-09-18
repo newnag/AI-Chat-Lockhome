@@ -11,7 +11,7 @@
 > - หน้าสินค้ายังแสดงค่าติดตั้ง 1,000 บาท/เครื่อง แต่ต้องยืนยันราคาบริการล่าสุด
 
 
-![Felice](https://lockhome.co.th/wp-content/uploads/2022/09/TOP-Digital-Door-Lock-FELICE-Lockhome.jpg)
+![Felice](https://lockhome.co.th/wp-content/uploads/2026/09/20260918-143841.jpg)
 
 - รายละเอียด: รุ่นพรีเมียมแบบ Push & Pull ปลดล็อกด้วยรหัส คีย์การ์ด ลายนิ้วมือ และเชื่อมต่อแอปบนสมาร์ทโฟน
 - ราคา: 17,900 บาท
